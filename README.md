@@ -31,5 +31,5 @@
 - Explore the repository, share your thoughts, or reach out to discuss data analysis, internship experiences, or related topics. Always open to learning and collaboration!
 
 ### 📬 Contact
-- Email: rojivadiyamayank@gmail.com
+- Email:tirth.p.patel143@gmail.com
 -  LinkedIn: [Patel Tirth](https://www.linkedin.com/in/tirth-patel-ba70b0273)
